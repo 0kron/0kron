@@ -1,4 +1,4 @@
-# Here Ain Bolaños ._.
+RESUME
 ---
 ### About Me
 I am above all things, self-taught, and driven by curiosity and challenge. While searching for responsibilities or jobs I do not focus on how much money I can make, but rather on ways to keep advancing in my career and extending my horizons. Every person and every piece of knowledge is a knot in a web, my role is to use what others teach me, what intrigues me and what motivates me to improve both who I am and where I am. 
